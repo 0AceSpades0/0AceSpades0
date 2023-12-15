@@ -8,7 +8,9 @@ Pansexual (Prefer Men)
 
 Lucario Is My Favorite Pokemon
 
-Lua, Haxe, C#
+I know Lua, Haxe, C#
+
+and
 
 Sorta C++
 
