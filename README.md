@@ -1,11 +1,15 @@
-My Name Is Emerald
+Hello My Name Is TheEmeraldBlade!
 
-Fuck You
+Call Me Emerald Or Emblade
 
-I know haxe
+Polyamorous
 
-I can do lua
+Pansexual (Prefer Men)
 
-I forgot everything else I've done
+Lucario Is My Favorite Pokemon
 
-but yea bye
+Lua, Haxe, C#
+
+Sorta C++
+
+But Yea Bye
