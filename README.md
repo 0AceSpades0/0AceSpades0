@@ -2,7 +2,7 @@ Hello My Name Is TheEmeraldBlade!
 
 Call Me Emerald Or Emblade
 
-Polyamorous
+She/Her/They/Them
 
 Pansexual (Prefer Men)
 
