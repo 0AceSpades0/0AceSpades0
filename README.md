@@ -2,7 +2,7 @@ Hello My Name Is TheEmeraldBlade!
 
 Call Me Emerald Or Emblade
 
-She/Her/They/Them
+She/They 🏳️‍⚧️
 
 Pansexual (Prefer Men)
 
