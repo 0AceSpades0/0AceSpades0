@@ -1,6 +1,8 @@
 Hello My Name Is TheEmeraldBlade!
 
-Call Me Emerald Or Emblade
+RULES OF NATURE!!!
+
+Call Me Emerald,Amethyst,Waste,Keta
 
 She/They 🏳️‍⚧️
 
