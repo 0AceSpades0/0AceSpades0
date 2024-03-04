@@ -4,7 +4,7 @@ Call Me Emerald Or Emblade
 
 She/They 🏳️‍⚧️
 
-Pansexual (Prefer Men)
+Pansexual
 
 Lucario Is My Favorite Pokemon
 
