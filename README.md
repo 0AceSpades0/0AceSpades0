@@ -2,7 +2,7 @@ Hello My Name Is TheEmeraldBlade!
 
 RULES OF NATURE!!!
 
-Call Me Emerald,Amethyst,Waste,Keta
+Call Me Emerald, Amethyst, Eveline, Madeline, Waste, Keta
 
 She/They 🏳️‍⚧️
 
