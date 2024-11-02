@@ -4,8 +4,6 @@ RULES OF NATURE!!!
 
 Call Me Emerald, Amethyst, Eveline, Madeline, Waste, Keta, Embee
 
-She/They 🏳️‍⚧️
-
 Pansexual
 
 Lucario Is My Favorite Pokemon
