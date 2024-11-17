@@ -1,8 +1,6 @@
 Hello My Name Is TheEmeraldBlade!
 
-RULES OF NATURE!!!
-
-Call Me Emerald, Amethyst, Eveline, Madeline, Waste, Keta, Embee
+Call Me Emerald, Amethyst
 
 Pansexual
 
