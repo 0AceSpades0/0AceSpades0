@@ -1,8 +1,10 @@
-Hello My Name Is TheEmeraldBlade!
+Hello My Name Is AceSpades!
 
 Call Me Emerald, Amethyst
 
-Pansexual
+Lesbian
+
+any/all (She/her Preferred)
 
 Lucario Is My Favorite Pokemon
 
