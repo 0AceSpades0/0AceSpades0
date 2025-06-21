@@ -2,9 +2,9 @@ Hello My Name Is AceSpades!
 
 Call Me Emerald, Amethyst
 
-Lesbian
+Pansexual
 
-any/all (She/her Preferred)
+any/all
 
 Lucario Is My Favorite Pokemon
 
